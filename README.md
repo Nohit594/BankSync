@@ -22,7 +22,7 @@ BankSync simplifies common banking operations:
 > "Best financial decision ever!"  
 > — Aarav Lynn, San Francisco, USA
 
-> "The last step to becoming a complete minimalist."  
+> "The last step to connect you Seamlessly."  
 > — Miyah Miles, London, UK
 
 > "Finally free from old-school banks!"  
